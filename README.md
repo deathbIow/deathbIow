@@ -18,7 +18,7 @@
 
 <img width="498" height="277" alt="8B37A1BE-63F7-4F62-8FBB-7F1FC3B3E43E" src="https://github.com/user-attachments/assets/dad4607e-2b9c-472c-a93d-4c493d3434d7" />
 
-<sub>[prns50](https://pronouns.cc/@50)</sub> <sub>[ata](https://heroo.atabook.org/)</sub> <sub>[dailyclicks](https://arab.org/click-to-help/palestine/)</sub>
+<sub>[prns50](https://pronouns.cc/@50)</sub> ️<sub>[atabook](https://heroo.atabook.org/)</sub> ️<sub>[dailyclicks](https://arab.org/click-to-help/palestine/)</sub>
 
 --- 
 

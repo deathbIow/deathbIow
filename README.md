@@ -14,7 +14,7 @@
  <img width="99" height="56" alt="Untitled649_20260723224231" src="https://github.com/user-attachments/assets/98d5eac7-0f60-4cf9-9ccb-2442a672158a" /><img width="99" height="56" alt="Untitled649_20260723224401" src="https://github.com/user-attachments/assets/7d94ee20-97df-464c-8f53-e904f25528b2" />
 
 ---
-<sub>holy shit that last part made him look like barou noo.</sub>
+<sub>oi!! sign ata and check links!! ᕙ( ᗒᗣᗕ )ᕗ</sub>
 
 <img width="498" height="277" alt="8B37A1BE-63F7-4F62-8FBB-7F1FC3B3E43E" src="https://github.com/user-attachments/assets/dad4607e-2b9c-472c-a93d-4c493d3434d7" />
 

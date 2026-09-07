@@ -5,6 +5,8 @@
 ![](https://komarev.com/ghpvc/?username=nottheghost&label=಄&color=8aadde)
 
 
+<sub>[prns50](https://pronouns.cc/@50)</sub> ️<sub>[atabook](https://kunigirii.atabook.org/)</sub> ️<sub>[dailyclicks](https://arab.org/click-to-help/palestine/)</sub>
+
 ---
 
 
@@ -17,4 +19,4 @@ ${\color{#9CABC9}\textsf{weren't you?  ⋆ °}}$
 
 --- 
 
-<sub>[prns50](https://pronouns.cc/@50)</sub> ️<sub>[atabook](https://kunigirii.atabook.org/)</sub> ️<sub>[dailyclicks](https://arab.org/click-to-help/palestine/)</sub>
+

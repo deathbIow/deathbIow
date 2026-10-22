@@ -16,7 +16,6 @@
 
 ${\color{#9c683e}\textsf{iayor unless friend}}$
 
-<small>${\color{#420b0b}\textsf{hör auf mein konto zu überprüfen du hast dich längst von mir gelöst.}}$</small>
 
 
 

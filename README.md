@@ -14,9 +14,9 @@
 
 
 
-${\color{#611006}\textsf{iayor unless friend}}$
+${\color{#9c683e}\textsf{iayor unless friend}}$
 
-
+<small>${\color{#420b0b}\textsf{stop checking my account you already moved on}}$</small>
 
 
 
